@@ -1,2 +1,0 @@
-# krikagator
-Mine
